@@ -1,0 +1,33 @@
+
+ 
+# Codefinder Millennium Edition Full Version 11: The Ultimate Bible Code Software
+ 
+If you are interested in finding hidden messages and codes in the Bible, you might want to check out Codefinder Millennium Edition Full Version 11, the world's fastest and most powerful Bible code software. This software allows you to search for Bible codes in English, Greek and Hebrew scriptures, and generate detailed reports of your findings. You can also compare different matrix determination methods, export and import your results, and use built-in utilities for Hebrew date and number conversion.
+ 
+**DOWNLOAD ✒ ✒ ✒ [https://kolbgerttechan.blogspot.com/?l=2uxi3z](https://kolbgerttechan.blogspot.com/?l=2uxi3z)**
+
+
+ 
+Codefinder Millennium Edition Full Version 11 has been independently rated as the world's #1 Bible code software and has been used for many presentations in TV documentaries and books about the Bible code. It has enough features to keep the experts happy whilst retaining ease of use for the novice. It also comes with a comprehensive tutorial and online help to guide you through the process of using the software.
+ 
+Codefinder Millennium Edition Full Version 11 runs on all current versions of Microsoft Windows, from Windows 98 to Windows 10. It will even run on Macintosh computers that are installed with either Virtual Windows or 'Boot Camp'. As of this update a native version for Mac OS X is in the late stages of development. You can order Codefinder Millennium Edition Full Version 11 either on CD or by instant download from the official website[^1^]. The download option is fast, secure and offers a significant saving over the CD.
+ 
+Don't miss this opportunity to discover the secrets of the Bible code for yourself. Order Codefinder Millennium Edition Full Version 11 today and start searching for your own hidden Bible codes in just a few minutes time.
+ 
+CodeFinder Bible Code Software Download,  CodeFinder Millennium Edition Tutorial,  CodeFinder Software for Windows 10,  CodeFinder Hebrew Dictionary,  CodeFinder Greek and Hebrew Scriptures,  CodeFinder TV Documentaries,  CodeFinder Yitzhak Rabin Assassination Code,  CodeFinder Predicting Armageddon,  CodeFinder Apocalypse and Beyond,  CodeFinder Secrets Revealed,  CodeFinder Future and Beyond,  CodeFinder English Bible Codes,  CodeFinder New Testament Codes,  CodeFinder Torah Codes,  CodeFinder Fastest and Most Powerful Software,  CodeFinder User Interface and Features,  CodeFinder Reviews and Ratings,  CodeFinder Links and Resources,  CodeFinder CD or Instant Download,  CodeFinder Save $24 over the CD,  CodeFinder Virtual Keyboard for Hebrew Input,  CodeFinder User Maintainable Dictionaries,  CodeFinder Search for Your Name in the Codes,  CodeFinder Generate Detailed Reports of Findings,  CodeFinder Automatic Matrix Determination,  CodeFinder Dual Language Operation,  CodeFinder Hebrew Date and Number Conversion Utilities,  CodeFinder High Speed Algorithm with Result Caching,  CodeFinder Search in Multiple Languages and Texts,  CodeFinder Scripture Display with English Translation,  CodeFinder Look for up to 500 Terms per Search,  CodeFinder Export and Import of Search Results,  CodeFinder Multiple Matrix Determination Methods,  CodeFinder Matrix Printout and Save to File Capabilities,  CodeFinder Comprehensive Online and Context Sensitive Help,  CodeFinder Configurable Parameters for Advanced Users,  CodeFinder Bible Codes History and Examples,  CodeFinder World's #1 Bible Code Software in Independent Reviews ,  CodeFinder Millennium Edition Version 1.23 ,  CodeFinder Compatible with Mac OS X ,  CodeFinder Bible Codes Software Information Page ,  CodeFinder Step by Step Instructions for Using the Software ,  CodeFinder Introducing Millennium Edition Software ,  CodeFinder Optimal Search Sequence Algorithm ,  CodeFinder On Screen Virtual Keyboard for Greek Input ,  CodeFinder Simple English Example Online ,  CodeFinder Bible Codes Research and Discovery ,  CodeFinder Reworked and Expanded Tutorial ,  CodeFinder 100% Compatible with All Windows Versions ,  CodeFinder Available by Download or on CD
+  
+Some Bible Code History
+ 
+The Bible code is the idea that there are hidden messages and prophecies encoded in the text of the Bible. The most common method of finding these codes is by using a technique called equidistant letter sequence (ELS), which involves skipping a fixed number of letters between each letter of a word or phrase. For example, the word "Torah" can be found in the first five books of the Hebrew Bible by skipping 49 letters between each letter.
+ 
+The first person to discover ELS in the Bible was Rabbi Michael Weissmandl, a Jewish scholar who lived in Czechoslovakia in the 1930s and 1940s. He found several examples of ELS in the Torah, such as the names of famous rabbis and their dates of birth and death. However, he did not publish his findings or claim any prophetic significance for them.
+ 
+The modern interest in the Bible code was sparked by a paper published in 1994 by three Israeli mathematicians, Eliyahu Rips, Doron Witztum and Yoav Rosenberg. They claimed that they had found statistically significant ELS in the Book of Genesis that related to modern events and personalities, such as the assassination of Yitzhak Rabin, the prime minister of Israel. Their paper was published in a prestigious journal called Statistical Science, which gave it credibility and attention.
+ 
+Their paper also inspired Michael Drosnin, an American journalist and author, who wrote a best-selling book called The Bible Code in 1997. Drosnin claimed that he had found many more ELS in the Bible that predicted future events, such as World War III, a comet impact and the end of the world. He also claimed that he had warned Rabin about his assassination before it happened, based on an ELS he had found in the Torah.
+ 
+However, Drosnin's claims were met with skepticism and criticism by many scholars and scientists, who argued that his methods were flawed and his interpretations were arbitrary. They pointed out that ELS can be found in any text, not just the Bible, and that they do not prove anything beyond coincidence or human imagination. They also showed that Drosnin's predictions were often vague, inaccurate or failed to materialize.
+ 
+Despite the controversy and criticism, the Bible code remains a popular topic for many people who are fascinated by the possibility of finding hidden messages and secrets in the ancient text. With Codefinder Millennium Edition Full Version 11, you can join them and explore the Bible code for yourself.
+ 8cf37b1e13
+ 
